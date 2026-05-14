@@ -2,6 +2,14 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-14 10:29 IR
+- 🗜️ [13_Freya_Tricks_You_MUST_Learn.7z.001](https://github.com/Enkidu817/sandbox/raw/main/dl/13_Freya_Tricks_You_MUST_Learn.7z.001) `95.0MB`
+
+- 🗜️ [13_Freya_Tricks_You_MUST_Learn.7z.002](https://github.com/Enkidu817/sandbox/raw/main/dl/13_Freya_Tricks_You_MUST_Learn.7z.002) `24.1MB`
+
+---
+
+
 ### 📅 2026-05-14 10:02 IR
 - 🗜️ [Freya_Is_Not_Balanced_(And_Nobodies_Fixing_It).7z.001](https://github.com/Enkidu817/sandbox/raw/main/dl/Freya_Is_Not_Balanced_%28And_Nobodies_Fixing_It%29.7z.001) `95.0MB`
 
