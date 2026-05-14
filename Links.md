@@ -2,6 +2,14 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-14 10:02 IR
+- 🗜️ [Freya_Is_Not_Balanced_(And_Nobodies_Fixing_It).7z.001](https://github.com/Enkidu817/sandbox/raw/main/dl/Freya_Is_Not_Balanced_%28And_Nobodies_Fixing_It%29.7z.001) `95.0MB`
+
+- 🗜️ [Freya_Is_Not_Balanced_(And_Nobodies_Fixing_It).7z.002](https://github.com/Enkidu817/sandbox/raw/main/dl/Freya_Is_Not_Balanced_%28And_Nobodies_Fixing_It%29.7z.002) `74.1MB`
+
+---
+
+
 ### 📅 2026-05-14 09:56 IR
 - 🎬 [Freya_NEW_META_Build_2026,_Emblem,_and_Best_Hero_Counters___Mobile_Legends.mp4](https://github.com/Enkidu817/sandbox/raw/main/dl/Freya_NEW_META_Build_2026%2C_Emblem%2C_and_Best_Hero_Counters___Mobile_Legends.mp4) `27.7MB`
 
